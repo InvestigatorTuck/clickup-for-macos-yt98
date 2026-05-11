@@ -1,4 +1,4 @@
-
+Enhance ClickUp for macOS with best ClickUp for macOS Plugin | AI assistant + collaboration, the #1 plugin. Includes AI assistant and collaboration for a smoother experience.
 
 
 
